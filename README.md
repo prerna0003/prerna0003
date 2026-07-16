@@ -144,8 +144,8 @@ prernatupsoundar074@gmail.com
 
 💼 **LinkedIn**
 
-https://www.linkedin.com/in/YOUR-LINKEDINwww.linkedin.com/in/
-prerna-tupsoundar-445338348
+https://www.linkedin.com/in/prerna-tupsoundar-445338348
+
 
 ### ⭐ Thank you for visiting my profile!
 
