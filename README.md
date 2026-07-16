@@ -138,13 +138,9 @@ Every repository on my GitHub represents continuous learning, experimentation, a
 
 # 📬 Let's Connect
 
-📧 **Email**
+📧 **Email** : prernatupsoundar074@gmail.com
 
-prernatupsoundar074@gmail.com
-
-💼 **LinkedIn**
-
-https://www.linkedin.com/in/prerna-tupsoundar-445338348
+💼 **LinkedIn** : https://www.linkedin.com/in/prerna7403
 
 
 ### ⭐ Thank you for visiting my profile!
